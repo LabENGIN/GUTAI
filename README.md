@@ -14,4 +14,4 @@ The municipality need to add its indicators on the GUTAI spreadsheet the formula
 - Fernanda - Linkdin or Lattes - email 
 - Grazieli - Linkdin or Lattes - email 
 - Joni - Linkdin or Lattes - email 
-- Afonso - Linkdin or Lattes - email 
+- Afonso Orgino Lenzi - https://www.linkedin.com/in/afonsolenzi/ - afonso.lenzi@gmail.com
