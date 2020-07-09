@@ -18,8 +18,8 @@ Definition / Definições
 # Autores
 
 - Patricia de Sá Freire, Dra. https://www.linkedin.com/in/patr%C3%ADcia-de-s%C3%A1-freire-phd-eng-2abab88/ email - Patricia.sa.freire@ufsc.br
-- Fernanda - Linkdin or Lattes - email 
-- Grazieli - Linkdin or Lattes - email 
+- Fernanda Kempner -   https://www.linkedin.com/in/fernanda-kempner-b33703142/ - kempnereletrica@gmail.com
+- Grazieli Izidorio -  https://www.linkedin.com/in/graziizidorio/ - grazieli.izidorio@gmail.com
 - Joni - https://www.linkedin.com/in/jonihoppen/ - joni@aquare.la 
 - Afonso Orgino Lenzi - https://www.linkedin.com/in/afonsolenzi/ - afonso.lenzi@gmail.com
 
